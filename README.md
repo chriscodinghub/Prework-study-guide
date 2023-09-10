@@ -1,2 +1,2 @@
 # Prework-study-guide
-Follow the guide and do all of the steps.
+Boot Camp Prework Study Guide for Students
